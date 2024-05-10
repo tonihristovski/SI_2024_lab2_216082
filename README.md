@@ -1,1 +1,1 @@
-# SI_2024_lab2_216082
+Toni Hristovski 216082
